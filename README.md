@@ -1,3 +1,4 @@
+![image](https://user-images.githubusercontent.com/60493376/89333144-701b1080-d649-11ea-85e9-4c458d26c3d1.png)
 
 Hi 👋 . I'm Christopher. Born and raised in the concrete jungle known as Queens, NY 🇩🇴 .
 
